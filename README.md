@@ -2,8 +2,10 @@
 
 ## About Me
 
-Welcome to my portfolio!  
+Welcome to my (cpamuktadircreations) portfolio!  
 I'm a passionate **Social Media Marketing**, **CPA (Cost Per Action) Affiliate Specialist**, and **Digital Minimalist Designer (Logo, Poster, Flayer, Book/eBook Design, Cover and Template Design)** dedicated to helping brands and entrepreneurs grow online with efficiency and style.
+
+**Your Trusted Freelance & Digital Marketing Partner!**
 
 ---
 
