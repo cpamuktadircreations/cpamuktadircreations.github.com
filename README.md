@@ -35,7 +35,7 @@ I'm a passionate **Social Media Marketing**, **CPA (Cost Per Action) Affiliate S
 ### 🤝 Let’s Connect
 
 Are you looking to elevate your brand or campaign with focused strategy and elegant design?  
-Feel free to [contact me](mailto: cpamuktadir@gmail.com); [https://www.facebook.com/share/15KfMBYbngo]; [https://www.instagram.com/khandkermuktadir]  or reach out via [https://linkedin.com/in/khandker-masum-m-b1282327] or 
+Feel free to [contact me](mailto: cpamuktadir@gmail.com);[https://www.facebook.com/share/15KfMBYbngo];[https://www.instagram.com/khandkermuktadir]  or reach out via [https://linkedin.com/in/khandker-masum-m-b1282327] or 
 [website:http://cpamuktadircreations.wordpress.com] or [https://github.com/cpamuktadircreations/cpamuktadircreations.github.com]
 
 ---
